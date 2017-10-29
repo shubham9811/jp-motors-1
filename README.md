@@ -6,6 +6,6 @@
 #### Authorized Wholesale Dealer
 
 ## Address
-#### J P Motors
+#### JP Motors
 #### Behind Kalamna Market plot no. 9siv sammbhu nagar near bharat wada, 
 #### Nagpur-440035, Maharashtra, India
